@@ -1,0 +1,2 @@
+# jambotvprivacy
+TERMS AND CONDITIONS
